@@ -1,0 +1,3 @@
+- 👋 Ello there, I’m SarcasmTree
+-  I’m interested in Trees, I do tree noises
+- ty, this is for fun and learning anything and everything
